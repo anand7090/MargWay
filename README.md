@@ -1,2 +1,0 @@
-# MargWay
-Coaching Institute
